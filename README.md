@@ -2,7 +2,7 @@
 
 By [Naimur Rahman](https://github.com/nayeem-rafi)
 
-## [Click for Files)](https://drive.google.com/drive/folders/1f6PpHTSGhRA1YLEQyjL7ZkkTz7275RAX?usp=drive_link)
+## [Click for Files](https://drive.google.com/drive/folders/1f6PpHTSGhRA1YLEQyjL7ZkkTz7275RAX?usp=drive_link)
 
 ---
 
